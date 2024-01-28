@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @doranmaul
+👋 Hi, I’m @doranmaul
 
 👀 
 
